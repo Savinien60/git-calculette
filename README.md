@@ -1,3 +1,2 @@
-# git-calculette
-
-Antonin Menoux a un gros penis
+# git-calculette yoyo
+yoyoyoyo
